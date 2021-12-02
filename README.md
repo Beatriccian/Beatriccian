@@ -5,6 +5,10 @@
 - 🌱 **I’m currently learning** Japanese, French, Korean, Web coding/IT
 - 💞️ **I’m looking to collaborate on** (Not yet)
 - 📫 **How to reach me** Just Ask for my Discord ID or E-mail
+<a href="https://btrxdiscordserververif.carrd.co">
+<button class="sbtn basic-btn blue-btn">✨Click here (If you're my friend)✨</button>
+</a>
+  
 ###### ✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧
 
 <img src="https://i.pinimg.com/originals/2f/7e/78/2f7e78f44b8ab4807ede637c6443eb45.gif">
