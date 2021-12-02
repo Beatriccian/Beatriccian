@@ -4,7 +4,7 @@
 - 🌱 **I’m currently learning** Japanese, French, Korean, Web coding/IT
 - 💞️ **I’m looking to collaborate on** (Not yet)
 - 📫 **How to reach me** just Ask for my Discord ID or E-mail
-(I'm still working on my README profile, so there would be some updates in it. I still don't have any decent ideas to put in here)
+>(I'm still working on my README profile, so there would be some updates in it. I still don't have any decent ideas to put in here)
 
 <!---
 beatriccian/beatriccian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
