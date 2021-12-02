@@ -4,7 +4,7 @@
 - 👀 **I’m interested in** Linguistics, Psychology, History, Philosophy, Editing, Web design
 - 🌱 **I’m currently learning** Japanese, French, Korean, Web coding/IT
 - 💞️ **I’m looking to collaborate on** (Not yet)
-- 📫 **How to reach me** Just Ask for my Discord ID or E-mail
+- 📫 **How to reach me** Just Ask for my Discord ID or E-mail (Join my Discord Server https://discord.gg/fW4GK56x)
 ###### ✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✧
 
 <img src="https://i.pinimg.com/originals/2f/7e/78/2f7e78f44b8ab4807ede637c6443eb45.gif">
