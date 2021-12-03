@@ -1,5 +1,7 @@
+<p align="right">
+  <img src="https://im3.ezgif.com/tmp/ezgif-3-783219cf6c1e.jpg">
 
-# <img src="https://im2.ezgif.com/tmp/ezgif-2-b713f3a9a753.gif"> 𝓦𝓮𝓵𝓬𝓸𝓶𝓮
+# <img src="https://im3.ezgif.com/tmp/ezgif-3-9971eb2fa0dc.gif"> 𝓦𝓮𝓵𝓬𝓸𝓶𝓮
 - 👋 **ℌ𝔦, ℑ’𝔪** Bellerix. You can call me Belle for short
 - 👀 **ℑ’𝔪 𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱𝔢𝔡 𝔦𝔫** Linguistics, Psychology, Typology, History, Philosophy, Editing, Solving problems, Learning new things, Design
 - 🌱 **ℑ’𝔪 𝔠𝔲𝔯𝔯𝔢𝔫𝔱𝔩𝔶 𝔩𝔢𝔞𝔯𝔫𝔦𝔫𝔤** Japanese(I'm majoring in Japanese), French, Korean, Web coding/IT/Programming
