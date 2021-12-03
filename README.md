@@ -7,9 +7,8 @@
 - 📫 **ℌ𝔬𝔴 𝔱𝔬 𝔯𝔢𝔞𝔠𝔥 𝔪𝔢** Just Ask for my Discord ID or E-mail
 
 <p align="center">
-✨<a href="https://btrxdiscordserververif.carrd.co">
-<button class="sbtn basic-btn blue-btn">Click here (If you're my friend)</button>✨
-</a>
+||<a href="https://btrxdiscordserververif.carrd.co">
+✨<button class="sbtn basic-btn blue-btn">Click here (If you're my friend)</button>✨</a>||
   
 #
 <p align="center"> <img src="https://im2.ezgif.com/tmp/ezgif-2-4ae4ff5bf0b8.gif">
