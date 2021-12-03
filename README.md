@@ -10,7 +10,7 @@
 ✨<a href="https://btrxdiscordserververif.carrd.co">
 <button class="sbtn basic-btn blue-btn">Click here (If you're my friend)</button>✨
 </a>
-<p align="center"> <img src="https://im2.ezgif.com/tmp/ezgif-2-1e4f0eb0885c.gif">
+<p align="center"> <img src="https://im2.ezgif.com/tmp/ezgif-2-4ae4ff5bf0b8.gif">
 <!---
 beatriccian/beatriccian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
