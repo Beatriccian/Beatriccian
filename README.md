@@ -7,7 +7,9 @@
 - 📫 **ℌ𝔬𝔴 𝔱𝔬 𝔯𝔢𝔞𝔠𝔥 𝔪𝔢** Just Ask for my Discord ID or E-mail
 
 <p align="center">
-||<a href="https://btrxdiscordserververif.carrd.co">
+  I'm still try to figure out any ideas to put on my Description. So there would be any updates as well
+<p align="center">
+  ||<a href="https://btrxdiscordserververif.carrd.co">
 ✨<button class="sbtn basic-btn blue-btn">Click here (If you're my friend)</button>✨</a>||
   
 #
