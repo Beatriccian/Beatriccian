@@ -8,9 +8,6 @@
 
 <p align="center">
   I'm still try to figure out any ideas to put on my Description. So there would be any updates as well
-<p align="center">
-  ||<a href="https://btrxdiscordserververif.carrd.co">
-✨<button class="sbtn basic-btn blue-btn">Click here (If you're my friend)</button>✨</a>||
   
 #
 <p align="center"> <img src="https://im2.ezgif.com/tmp/ezgif-2-4ae4ff5bf0b8.gif">
