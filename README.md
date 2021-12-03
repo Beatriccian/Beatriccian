@@ -2,7 +2,7 @@
 # WELCOME ♥
 - 👋 **Hi, I’m** Bellerix. You can call me Belle for short
 - 👀 **I’m interested in** Linguistics, Psychology, History, Philosophy, Editing, Web design
-- 🌱 **I’m currently learning** Japanese, French, Korean, Web coding/IT
+- 🌱 **I’m currently learning** Japanese, French, Korean, Web coding/IT/Programming
 - 💞️ **I’m looking to collaborate on** (Not yet)
 - 📫 **How to reach me** Just Ask for my Discord ID or E-mail
 <a href="https://btrxdiscordserververif.carrd.co">
