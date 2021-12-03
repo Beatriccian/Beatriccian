@@ -1,10 +1,10 @@
 
-# <img src="https://im2.ezgif.com/tmp/ezgif-2-b713f3a9a753.gif"> WELCOME 
-- 👋 **Hi, I’m** Bellerix. You can call me Belle for short
-- 👀 **I’m interested in** Linguistics, Psychology, History, Philosophy, Editing, Web design
-- 🌱 **I’m currently learning** Japanese, French, Korean, Web coding/IT/Programming
-- 💞️ **I’m looking to collaborate on** (Not yet)
-- 📫 **How to reach me** Just Ask for my Discord ID or E-mail
+# <img src="https://im2.ezgif.com/tmp/ezgif-2-b713f3a9a753.gif"> 𝓦𝓮𝓵𝓬𝓸𝓶𝓮
+- 👋 **ℌ𝔦, ℑ’𝔪** Bellerix. You can call me Belle for short
+- 👀 **ℑ’𝔪 𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱𝔢𝔡 𝔦𝔫** Linguistics, Psychology, History, Philosophy, Editing, Web design
+- 🌱 **ℑ’𝔪 𝔠𝔲𝔯𝔯𝔢𝔫𝔱𝔩𝔶 𝔩𝔢𝔞𝔯𝔫𝔦𝔫𝔤** Japanese, French, Korean, Web coding/IT/Programming
+- 💞️ **ℑ’𝔪 𝔩𝔬𝔬𝔨𝔦𝔫𝔤 𝔱𝔬 𝔠𝔬𝔩𝔩𝔞𝔟𝔬𝔯𝔞𝔱𝔢 𝔬𝔫** (Not yet)
+- 📫 **ℌ𝔬𝔴 𝔱𝔬 𝔯𝔢𝔞𝔠𝔥 𝔪𝔢** Just Ask for my Discord ID or E-mail
 
 <p align="center">
 ✨<a href="https://btrxdiscordserververif.carrd.co">
