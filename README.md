@@ -4,7 +4,7 @@
 - 👀 **ℑ’𝔪 𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱𝔢𝔡 𝔦𝔫** Linguistics, Psychology, History, Philosophy, Editing
 - 🌱 **ℑ’𝔪 𝔠𝔲𝔯𝔯𝔢𝔫𝔱𝔩𝔶 𝔩𝔢𝔞𝔯𝔫𝔦𝔫𝔤** Japanese, French, Korean, Web coding/IT/Programming
 - 💞️ **ℑ’𝔪 𝔩𝔬𝔬𝔨𝔦𝔫𝔤 𝔱𝔬 𝔠𝔬𝔩𝔩𝔞𝔟𝔬𝔯𝔞𝔱𝔢 𝔬𝔫** (Not yet)
-- 📫 **ℌ𝔬𝔴 𝔱𝔬 𝔯𝔢𝔞𝔠𝔥 𝔪𝔢** Just Ask for my Discord ID or E-mail
+- 📫 **ℌ𝔬𝔴 𝔱𝔬 𝔯𝔢𝔞𝔠𝔥 𝔪𝔢** -
 
 <p align="center">
   I'm still try to figure out any ideas to put on my Description. So there would be any updates as well
