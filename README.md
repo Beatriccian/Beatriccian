@@ -1,5 +1,3 @@
-<p align="right">
-  <img src="https://im3.ezgif.com/tmp/ezgif-3-783219cf6c1e.jpg">
 
 # <img src="https://im3.ezgif.com/tmp/ezgif-3-9971eb2fa0dc.gif"> 𝓦𝓮𝓵𝓬𝓸𝓶𝓮
 - 👋 **ℌ𝔦, ℑ’𝔪** Bellerix. You can call me Belle for short
