@@ -6,7 +6,7 @@
 </p>
 
 <p align="center"> 
-<img src="https://bellerixgif.carrd.co/assets/images/image05.png?v=68bde98d">
+<img src="https://bellerixgif.carrd.co/assets/images/image06.gif?v=1d33fd21" width="100" height="100">
 </p>
 
 - ![love resize again](https://user-images.githubusercontent.com/95408398/146207432-d018ab72-e8d6-4442-8231-88e0e1823eaf.gif)
